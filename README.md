@@ -1,0 +1,1 @@
+# Projeto-de-QA---Palmeirinha-Atualizada
